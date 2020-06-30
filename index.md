@@ -10,3 +10,5 @@ characters, appearing in 33 novels, 2 plays (Black Coffee and Alibi), and more t
 * Considers himself the most famous private detective the world has ever seen
 
 > It is this villainous sea that troubles me! The mal de mer – it is horrible suffering!
+
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/b/b3/2011-07-26_Belgique_-_Ellezelles_-_Hercule_Poirot_002.jpg/450px-2011-07-26_Belgique_-_Ellezelles_-_Hercule_Poirot_002.jpg"/>
