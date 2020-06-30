@@ -8,3 +8,5 @@ characters, appearing in 33 novels, 2 plays (Black Coffee and Alibi), and more t
 * From Belgium although everybody thinks he's French
 * Makes extensive use of his _little grey cells_
 * Considers himself the most famous private detective the world has ever seen
+
+> It is this villainous sea that troubles me! The mal de mer – it is horrible suffering!
